@@ -25,7 +25,7 @@ Places to visit in Korea
 
 ### Amusement Park
 - [Lotte World](https://naver.me/xucpoEQ9)
-- [Everland](https://naver.me/Gn0yAbFX)
+- [COEX](https://naver.me/Gn0yAbFX)
 
 ### President's House
 - [Cheong Wa Dae (Blue House)](https://naver.me/Fk73Pq2s)
