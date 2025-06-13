@@ -17,7 +17,7 @@ https://map.naver.com/
 https://naver.me/5chuELwp
 
 ### Palace
-https://naver.me/Fw7iyAYH
+https://naver.me/Fw7iyAYH\\
 https://naver.me/xExWbXgP
 https://naver.me/5130MUAR
 
