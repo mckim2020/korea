@@ -53,6 +53,6 @@ Places to visit in Korea
 ## Kyeongju
 
 ### Historical Place
-- [Bulguksa Temple](https://naver.me/GYC92L82)
-- [Seokguram Grotto](https://naver.me/xrSQhkur)
+- [Seokguram Grotto](https://naver.me/GYC92L82)
+- [King's Tomb](https://naver.me/xrSQhkur)
 - [Cheomseongdae Observatory](https://naver.me/GJTiv7JT)
