@@ -31,12 +31,12 @@ Places to visit in Korea
 - [Cheong Wa Dae (Blue House)](https://naver.me/Fk73Pq2s)
 
 ### Drink
-- [Brewing Experience Center](https://naver.me/GXgUpF47)
+- [Itaewon](https://naver.me/GXgUpF47)
 
 ### Eat
-- [Gwangjang Market](https://naver.me/FeXRX5zL)
-- [Myeongdong Street Food](https://naver.me/x7ndT1BO)
-- [Noryangjin Fish Market](https://naver.me/GYC9bZbQ)
+- [KBBQ](https://naver.me/FeXRX5zL)
+- [Pasta](https://naver.me/x7ndT1BO)
+- [Icecream](https://naver.me/GYC9bZbQ)
 
 ## Busan
 
